@@ -17,9 +17,9 @@
 - Innovative web applications
 
 ## 📫 How to reach me ...
-- Email: uroojmanni@example.com
-- [LinkedIn](https://www.linkedin.com/in/uroojmanni)
-- [Twitter](https://twitter.com/uroojmanni)
+- Email: uroojmanni12@gmail.com
+-
+
 
 ## 😄 Pronouns: she/her
 
